@@ -197,4 +197,4 @@ Tool Installation successful
 
 # Support
 
-Join Red Hackers Army Group
+Join R**ed** Hackers Army Group
